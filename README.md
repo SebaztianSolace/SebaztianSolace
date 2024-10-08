@@ -5,7 +5,7 @@
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm a Jr. duh.
 
-[![Infin-ix Stats](https://github-readme-stats.vercel.app/api?username=Infin-ix&theme=tokyonight&show_icons=true)](https://github.com)
+[![Infin-ix Stats](https://github-readme-stats.vercel.app/api?username=Infin-ix&theme=tokyonight&show_icons=true&langs_count=4)](https://github.com)
 
 
 <!---
