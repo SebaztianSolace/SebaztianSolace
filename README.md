@@ -6,6 +6,8 @@
 - ⚡ Fun fact: I'm a Jr. duh.
 
 [![Stats](https://github-readme-stats.vercel.app/api?username=Infin-ix&theme=tokyonight&show_icons=true)](https://github.com)
+
+
 [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=infin-ix&theme=tokyonight&langs_count=8)](https://github.com)
 
 
