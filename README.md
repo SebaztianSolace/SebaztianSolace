@@ -16,7 +16,6 @@
 
  
 <img src="https://media.tenor.com/Xe5HRbPJhsUAAAAi/sebastian-solace-spin.gif"/>
-## I'm a Kid in Middle School Just unblocking crap.
 
 <br><br>
 
