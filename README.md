@@ -2,7 +2,7 @@
 
 # Sebastian Solace/SebaztianSolace
 ## Info
-- I Joined Github **{{ ACCOUNT_AGE }}**
+- I Joined Github **{{ ACCOUNT_AGE }}** years
 - He/Him
 - PST (California LS) Timezone.
 - I'm Into Ryan Caraveo (Music Artistic)
