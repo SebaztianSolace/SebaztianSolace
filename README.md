@@ -3,6 +3,7 @@
 
  [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=yes;Fishy;Im+Tired;)](https://git.io/typing-svg)
 
+hai Williamw84
 
 # Sebastian Solace/SebaztianSolace
 ## Info
