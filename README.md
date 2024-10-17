@@ -22,7 +22,7 @@
  <br><br>
 
  
-<img src="https://media.tenor.com/Xe5HRbPJhsUAAAAi/sebastian-solace-spin.gif"/>
+<img src="https://media.tenor.com/kztyWO1t5WcAAAAe/sebastian-solace-pressure-roblox.png"/> 
 
 <br><br>
 
