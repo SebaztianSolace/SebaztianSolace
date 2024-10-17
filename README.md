@@ -22,7 +22,7 @@
  <br><br>
 
  
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRDb4GO7uWvWxIjQSaeOqyuqdsB9GacyeogJw&s"/> 
+<img src="/sebby.png"/> 
 
 <br><br>
 
