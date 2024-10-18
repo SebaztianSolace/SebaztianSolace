@@ -1,7 +1,7 @@
 <div align="center">
 
 
- [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=yes;Fishy;Im+Tired;)](https://git.io/typing-svg)
+ [![Typing SVG](https://readme-typing-svg.demolab.com/?lines=Im+a+Roblox+Developer+Scripter;I+identify+as+a+Fish/Fish;I+hate+Coding+Html+And+Css+AND+JavaScript;)](https://git.io/typing-svg)
 
 # Sebastian Solace/SebaztianSolace
 ## Info About Me
