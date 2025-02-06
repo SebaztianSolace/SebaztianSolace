@@ -7,19 +7,18 @@
 ## Info About Me
 - I'm Gay. ***(Meaning I like boys lol)***
 - He/Him.
-- Teen.
 - PST (California LS) Timezone.
 - I'm Into Ryan Caraveo (Music Artistic)
-- I Use [Roblox](https://roblox.com/), [Discord](https://discord.com/), And [Scratch](https://scratch.mit.edu/)
-- Hi Williamw84.
+- I Use, [Discord](https://discord.com/), [Scratch](https://scratch.mit.edu/), And [Youtube](https://youtube.com)
+- I Play, [Roblox](https://roblox.com/), [Minecraft](https://minecraft.net), [VotV](https://mrdrnose.itch.io/votv), [Lethal Company](https://store.steampowered.com/app/1966720/Lethal_Company/), And [Grand theft auto V](https://store.steampowered.com/app/271590/Grand_Theft_Auto_V/)
 
-## Ways to Talk to me
-- Add me on discord *_.sebastiansolace._*
-- Add me on Roblox *Infin_ixx* (I most likely have full friends but follow me on Roblox to be able to join me.)
-- Comment Below on Scratch *NotDusky* (It's my account I cant change the user.)
+## Ways to Talk to Me
+- Add me on discord: *_.sebastiansolace._* [I most likely will accept, but I will be slow cause you are not known]
+- Add me on Roblox: *Infin_ixx* [I might not accept your friend request, but there's a chance]
+- Comment Below on Scratch: *NotDusky* [Unlikely to reply to you, I am inactive on scratch]
 
 
- <br><br>
+ <br>hi<br>
 
  
 <img src="/sebby.png"/> 
