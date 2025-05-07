@@ -14,7 +14,6 @@
 
 ## Ways to Talk to Me
 - Add me on discord: *_.sebastiansolace._* [I most likely will accept, but I will be slow cause you are not known]
-- Add me on Roblox: *Infin_ixx* [I might not accept your friend request, but there's a chance]
 - Comment Below on Scratch: *NotDusky* [Unlikely to reply to you, I am inactive on scratch]
 
 
